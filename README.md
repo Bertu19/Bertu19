@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bertu19
 - 👀 I’m interested in Volleyball🏐, Basketball🏀, Computer Games🎮 etc.
-- 🌱 I’m currently learning Computer Information Systems and Technology👨‍💻 1st year.
+- 🌱 I’m currently learning Computer Information Systems and Technology👨‍💻 2st year.
 - 📫 How to reach me;
 - ig: delibertu
 - gmail: bertu.emird@gmail.com
